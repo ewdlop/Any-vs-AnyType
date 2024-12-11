@@ -13,3 +13,8 @@ typescript: javascrit you are special case of me!
 javascript: typescript I contain you
 
 Homtopic typists theorist: palm sweat
+
+javascript: i am typless
+typescript: typeless means there is no distinction!
+
+Homtopic typists theorist: you done yet?
